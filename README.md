@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **anshyadav213456@gmail.cmo**
 
-- ⚡ Fun fact **I think I can anyone laugh!**
+- ⚡ Fun fact **I think I can make anyone laugh!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
